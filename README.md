@@ -1,1 +1,0 @@
-# lucky-money.github.io
